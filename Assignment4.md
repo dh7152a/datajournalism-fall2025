@@ -8,3 +8,4 @@ https://store.steampowered.com/charts/mostplayed
 
 https://github.com/dh7152a/datajournalism-fall2025/blob/main/IMG_1886.jpeg
 
+https://github.com/dh7152a/datajournalism-fall2025/blob/main/IMG_1887%202.jpeg
